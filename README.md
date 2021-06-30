@@ -1,6 +1,6 @@
 # cfynes14
 
-## Hi, I'm Chris :grin:
+## Hi, I'm Chris 💻:
 
 ### https://christopherfynes.co.uk
 
